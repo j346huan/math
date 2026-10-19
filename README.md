@@ -1,1 +1,1 @@
-https://j346huan.github.io/math-visual/
+https://j346huan.github.io/math/
